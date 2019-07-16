@@ -5,7 +5,7 @@ Even if it really start to drop tears or weep blood, it's the same to me ... no 
 The hilarious thing is that i start thinking about making it my own meal.
 I remember my last meal, oh it was a dead dog 3 days ago.
 We are stepping to the verge of eating each other, human flesh oh what does it taste.
-I've heard that it tastes like pork...
+I've heard that it tastes like cat food...
 
 
 OMG WHAT SHOULD I DO??
